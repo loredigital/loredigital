@@ -1,2 +1,1 @@
-- 👋 Hi, I’m @loredigital
 - 📫 Twitter @loredigital031
